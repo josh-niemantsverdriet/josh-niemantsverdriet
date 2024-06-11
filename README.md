@@ -15,6 +15,6 @@ Music: Besides coding, I'm also passionate about music. I play the tuba among ot
 
 **Get in Touch**
 [LinkedIn](https://www.linkedin.com/in/joshua-niemantsverdriet/)
-[Email](nieman.jt@mail.uc.edu)
+ or Email: nieman.jt@mail.uc.edu
 
 Feel free to reach out if you have any questions or just want to connect!
